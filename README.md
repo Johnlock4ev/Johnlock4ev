@@ -3,5 +3,4 @@
 <img width="735" height="757" alt="image" src="https://github.com/user-attachments/assets/7688627a-9a3a-4fc7-82bd-3ecb2ffb0bfc" />
 
 
-
- 　　　　　 　 　　　　　　 　　　　 　<a href=https://en.pronouns.page/@dr.watsonn> ♡　𓂃　ᵖʳⁿˢᵖᵃᵍᵉ<a/>　　　<a href=https://real-sonic.straw.page/> ♡　𓂃　​ˢᵗʳᵃʷ​<a/>　　　
+ 　　　　　 　 　　　　　　  <a href=https://en.pronouns.page/@dr.watsonn> ♡　𓂃　ᵖʳⁿˢᵖᵃᵍᵉ<a/>　　　<a href=https://real-sonic.straw.page/> ♡　𓂃　​ˢᵗʳᵃʷ​<a/>　　　<a href=https://johns.atabook.org> ♡　𓂃　ᵃᵗᵃ​​<a/>　
