@@ -1,6 +1,7 @@
 <img src="https://komarev.com/ghpvc/?username=real-sonic&color=C1EEF9&style=plastic&label=+++🍎+++&abbreviated=true" />　　　　　　　　i 　　　miss　　　that　　　kind　　　of　　　misery
 
-<img width="1200" height="1195" alt="image" src="https://github.com/user-attachments/assets/1b5de48d-0baf-42af-afb8-c10f0778fc3a" />
+<img width="670" height="670" alt="image" src="https://github.com/user-attachments/assets/b40eaefd-e7a2-4fe5-9bbc-3fbdaf4fdfec" />
+
 
 
 
